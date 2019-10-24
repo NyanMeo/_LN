@@ -15,8 +15,9 @@ Với năng lực khá là bá đạo, Tarou giờ đổi tên thành Tauro, kh�
 
 ### Bản dịch tiếng Anh
 
-Dịch giả: Nefarian
-Graphic Designer: AmareeLis
+Dịch giả chính: Nefarian
+Thiết kế đồ hoạ: AmareeLis
+Biên tập: JackOFallTrades
 
 ### Bản dịch tiếng Việt
 
